@@ -1,3 +1,0 @@
-# AMRUTESH CHIKKAMATH Portfolio - Overview
-
-
